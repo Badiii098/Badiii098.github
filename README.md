@@ -1,3 +1,3 @@
 # Badiii098.github
 
-click this website : https://github.com/Badiii098/Badiii098.github.git
+click this website : https://badiii098.github.io/Badiii098.github/
